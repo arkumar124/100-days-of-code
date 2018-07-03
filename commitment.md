@@ -3,9 +3,9 @@
 ## I am taking this challenge publicly and I take auth that I would be sharing all of my code and updates with you for next 100 days.
 
 ## Links to my public announcement 
-1. [Twitter Commitment](https://twitter.com/chetanhere/status/1013393655296610304)
+1. [Twitter Commitment](https://twitter.com/iamArvind95/status/1014181767022956544)
 
-2. [LinkedIn Commitment](https://www.linkedin.com/feed/update/urn:li:activity:6419136040908492800)
+2. [LinkedIn Commitment](https://www.linkedin.com/feed/update/urn:li:activity:6419947259978448896)
 
 **Request:** I request you all to poke me and make me accountable if I fail to update on a single day.
 
