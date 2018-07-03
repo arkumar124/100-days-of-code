@@ -9,6 +9,6 @@
 
 **Request:** I request you all to poke me and make me accountable if I fail to update on a single day.
 
-### **Link to my Facebook :** [Fb](https://www.facebook.com/chetan.vashistth)
-### **Link to my Twitter :** [Twitter](https://twitter.com/chetanhere)
-### **Link to my LinkedIn :** [LinkedIn](https://www.linkedin.com/in/chetanvashistth/)
+### **Link to my Facebook :** [Fb](https://www.facebook.com/arvindkumar.rastogi.92)
+### **Link to my Twitter :** [Twitter](https://twitter.com/iamArvind95)
+### **Link to my LinkedIn :** [LinkedIn](https://www.linkedin.com/in/arvind-rastogi-5974b2167/)
